@@ -1,1 +1,0 @@
-# submit-aktivit.github.io
